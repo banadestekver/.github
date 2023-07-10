@@ -14,4 +14,4 @@ Siz de harekete geçin ve "Bana Destek Ver" uygulamasına katılın. Küçük bi
 
 Teşekkürlerimizle,
 
-Bana Destek Ver Ekibi
+banadestekver.com Ekibi
