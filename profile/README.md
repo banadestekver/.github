@@ -6,7 +6,7 @@ Sizlere duyduğumuz minnettarlıkla, bugün sizlere "banadestekver.com" uygulama
 
 Sizlerden istediğimiz destek, farklı yollarla gerçekleştirilebilir. Bunlar arasında maddi bağışlar, gönüllü çalışma, bilgi ve deneyim paylaşımı, projeleri desteklemek için farkındalık yaratma gibi yöntemler bulunmaktadır. Herhangi bir şekilde katkıda bulunmak isteyen herkesi uygulamaya katılmaya davet ediyoruz.
 
-"Bana Destek Ver" uygulaması, toplumumuzun her kesiminden insanları bir araya getirerek, dayanışma ve yardımlaşma kültürünü güçlendirmeyi hedeflemektedir. Birlikte daha iyi bir dünya inşa etmek için her birinizin katkısının değerini biliyoruz.
+"banadestekver.com" uygulaması, toplumumuzun her kesiminden insanları bir araya getirerek, dayanışma ve yardımlaşma kültürünü güçlendirmeyi hedeflemektedir. Birlikte daha iyi bir dünya inşa etmek için her birinizin katkısının değerini biliyoruz.
 
 Desteklerinizle daha fazla insanın yaşamına dokunmayı, sorunları çözmeyi ve geleceğe umutla bakmayı amaçlıyoruz. Hep birlikte, "banadestekver.com" uygulamasıyla dünyayı değiştirme yolunda önemli adımlar atabiliriz.
 
